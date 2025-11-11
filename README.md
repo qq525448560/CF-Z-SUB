@@ -1,6 +1,6 @@
 ### 阿牛的公益项目
 
-[<img width="1312" height="750" alt="image" src="https://x-aniu.com">](https://x-aniu.com)
+<img width="600" alt="阿牛的公益项目" src="https://x-aniu.com">
 
 
 
