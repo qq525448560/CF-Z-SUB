@@ -1,5 +1,4 @@
 ### 阿牛的公益项目
-### 阿牛的公益项目
 
 [![访问阿牛的公益项目](https://s0.wp.com/mshots/v1/https://x-aniu.com?w=1200)](https://x-aniu.com)
 
