@@ -1,6 +1,9 @@
 ### 阿牛的公益项目
+### 阿牛的公益项目
 
-<img width="600" alt="阿牛的公益项目" src="https://x-aniu.com">
+[![访问阿牛的公益项目](https://s0.wp.com/mshots/v1/https://x-aniu.com?w=1200)](https://x-aniu.com)
+
+> 💡 点击上方图片即可访问网站主页。
 
 
 
